@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Machine Learning/Deep Learning projects.
 - 📫 How to reach me email - dyumna.karthikeyan2023@vitstudent.ac.in
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I loveee musicc!!
 
 <!---
 DyumnaK/DyumnaK is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
